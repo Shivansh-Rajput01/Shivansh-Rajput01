@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on GITHUB account and as well as my linkedIn account.
 - 📫 How to reach me :- contact no.(9123256384) and gamil :- shivansjrajput2002@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I enjoyed playing cricket and passionate about emerging technologies like MERN, AI
+- ⚡ Fun fact: I enjoy playing cricket and passionate about emerging technologies like MERN, AI
 
 <!---
 Shivansh-Rajput01/Shivansh-Rajput01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
